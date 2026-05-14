@@ -1,4 +1,4 @@
-# 
+# MindManager for Windows advanced Utility: brainstorming-tools & Gantt-view is the best MindManager for Windows utility, featuring brainstorming-tools and Gantt-view. Powerful,
 
 
 
